@@ -1,4 +1,4 @@
-#  
+#  automatic Scripts for bridger western offers the most advanced bridger western Script, with auto-heal and esp. Perfect for dominating any match.
 
 
 
